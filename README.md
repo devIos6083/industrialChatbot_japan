@@ -1,0 +1,1 @@
+# industrialChatbot_japan
